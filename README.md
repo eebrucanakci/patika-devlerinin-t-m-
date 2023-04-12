@@ -1,0 +1,1 @@
+# patika-devlerinin-t-m-
